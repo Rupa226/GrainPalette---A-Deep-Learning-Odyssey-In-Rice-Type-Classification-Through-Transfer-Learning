@@ -1,0 +1,1 @@
+Static Of the Project
